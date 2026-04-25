@@ -1,4 +1,4 @@
-
+secret steal the brainrot base Scripts offers the most advanced steal the brainrot base Script, with teleport and auto-farm. Perfect for dominating
 
 
 
